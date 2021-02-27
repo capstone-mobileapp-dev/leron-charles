@@ -3,4 +3,4 @@ Last Name: Charles
 
 School Name: Rutgers University - Newark
 Grade:  Undergraduate
-Fun Fact: I play a lot of video games, FIFA
+Fun Fact: I play a lot of video games, FIFA , and 2K
